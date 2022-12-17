@@ -1,0 +1,4 @@
+- 👋 Hi everyone, I’m JackeCrash
+- I want to meet people with whom we can collaborate together in this world of programming.
+- I'm a beginner programmer who wants learn make video games.
+- I’m from Argentina, football fan.
